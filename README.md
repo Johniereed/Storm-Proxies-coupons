@@ -2,7 +2,7 @@
 
 The greatest savings are guaranteed when you use verified [Storm Proxies coupon codes](https://bit.ly/3WkytwP).
 
-Save 30% on one of the top rotating reverse proxies and residential IP proxies by using active Storm Proxies Coupons and promo codes.
+Save 30% on one of the top rotating reverse proxies and residential IP proxies by using active [Storm Proxies Coupons](https://johniereed.github.io/stormproxies-coupon/) and promo codes.
 
 ## Get 30% Off StormProxies Coupon Code
 
